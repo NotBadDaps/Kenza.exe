@@ -1,0 +1,2 @@
+# Kenza.exe
+JANGAN SEMBARANG KONTOL
